@@ -30,3 +30,9 @@ Links:
 <img width="995" alt="Screenshot 2024-08-30 at 4 31 32 PM" src="https://github.com/user-attachments/assets/56acc911-7208-4d34-b870-7d5e81574414">
 
 <h2>Suggested Marketing</h2>
+<img width="916" alt="Screenshot 2024-08-30 at 4 32 53 PM" src="https://github.com/user-attachments/assets/8f043050-52fa-4d35-a7ae-55928d965ee2">
+<img width="923" alt="Screenshot 2024-08-30 at 4 33 05 PM" src="https://github.com/user-attachments/assets/abe93af5-e94a-41fe-b583-e4044d36fd5a">
+<img width="988" alt="Screenshot 2024-08-30 at 4 33 16 PM" src="https://github.com/user-attachments/assets/64dcd5ae-0ba4-4e64-b180-010bb6bec211">
+
+
+
